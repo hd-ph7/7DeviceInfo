@@ -18,3 +18,6 @@ Used projects by ArabWare, CodeCandy and VinceBuen
 Used animation moreblock made by XenonDry_THEB3IST
 And thanks GreenCityLife for fixing the dynamic shortcut error.
 Thanks all people i credited on Sketchub who helped me for making this app.
+
+My telegram: https://t.me/hd_ph7
+---
