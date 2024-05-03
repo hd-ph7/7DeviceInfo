@@ -24,6 +24,3 @@ My telegram: https://t.me/hd_ph7
 
 My discord: https://discord.com/users/1046820194762379274
 ---
-
-My e-mail contact: hdph7official01@gmail.com
---
